@@ -138,3 +138,11 @@ I got bored idk </3
 
  <img width="689" height="559" alt="Untitled226_20251114174924" src="https://github.com/user-attachments/assets/1d3cacfc-2016-44ce-ae94-b1b27b0f0dd7" />
 
+
+
+
+# I DREW THIS IN 2022 OK?
+
+
+<img width="1378" height="1378" alt="Necrosma dies leafeon miss necrosma_0000-10-52_20260106125004" src="https://github.com/user-attachments/assets/f7260bec-8a02-4f44-b6d1-acfd74f9d0d6" />
+
