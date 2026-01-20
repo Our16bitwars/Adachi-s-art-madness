@@ -25,7 +25,7 @@
 
 
 
-# For mafu ok
+# hes my oc ok.
 
 
 
