@@ -1,3 +1,12 @@
+# SASAKURE REMAKEEEE🥺🥺🥺🥺🥺
+
+<img width="689" height="551" alt="6405 Sem Título 2025 06 30-12 37_20260527234020" src="https://github.com/user-attachments/assets/07492101-23f2-448d-97d5-2127f9695996" />
+
+
+
+
+
+
 # Ok
 
 
